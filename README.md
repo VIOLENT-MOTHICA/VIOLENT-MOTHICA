@@ -19,9 +19,6 @@ Volume: ■■■■■□□□
 𓆩⟡𓆪 You can reach me basically on anything. Ask first.
 
 
-✧˖°࿐  Any or All pronouns, I do not care how you address me.
-
-
 𓆩⟡𓆪 I am Japanese/German, please do not make jokes on it. Unless I do it first. Thank you. 
 
 
