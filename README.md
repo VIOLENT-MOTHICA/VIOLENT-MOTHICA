@@ -13,7 +13,7 @@ Volume: ■■■■■□□□
 𓆩⟡𓆪 If you are wondering my age, I am 27yrs old.
 
 
-✧˖°࿐ Before you ask, yes, we are diagnosed. No I will not listen to you saying "Oh you're just faking for-" Stop. Who ever fakes an Illness or Disability can kindly go fuck themselves. This isn't "cute" or "quirky." This is life ruining.
+✧˖°࿐ Before you ask, yes, we are diagnosed. No I will not listen to you saying "Oh you're just faking for-" Stop. Who ever fakes an Illness or Disability can actually go fuck themselves. This isn't "cute" or "quirky." This is life ruining.
 
 
 𓆩⟡𓆪 You can reach me basically on anything. Ask first.
