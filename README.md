@@ -28,7 +28,8 @@ Volume: ■■■■■□□□
 𓆩⟡𓆪  I am happily taken, do not flirt with me unless we are close! ( And you are obviously joking. )
 
 
-✧˖°࿐  I am a Dead-Dove enjoyer. That does not mean I condone the actions. Leave me be.
+✧˖°࿐  I am a Dead-Dove enjoyer. That does not mean I condone the actions. Leave me be. Yes, I believe fiction affects reality, while I do enjoy it IN FICTION ONLY. **(Only if it is done properly, tastefully, researched on, ect.)** Whoever does this shit in real life, you're vile. Get the fuck out of my sight.
+
 <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWQwaDZvNnU5Z2d1dW83dm04N2Fta2psdHMwN2FwYnZxeWhtOXNiOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Po0airzUdRLVFNNHkD/giphy.gif">
 
 More Information below About Me.
