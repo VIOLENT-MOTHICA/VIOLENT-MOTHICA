@@ -64,7 +64,7 @@ More Information below About Me/Us
   <img src="https://media.discordapp.net/attachments/1465255543559159975/1558341826438500352/Solas_comm.png?ex=6acd10ac&is=6acbbf2c&hm=17b7826e17a7f82f0d6ee3838b8380df69d969b5b22870a0404056c9032f7082&=&format=webp&quality=lossless&width=808&height=1024">
 
   (Plaugie)
-  <img src="https://cdn.discordapp.com/attachments/1465255543559159975/1558339898522730568/20240913_133114.jpg?ex=6acd0ee0&is=6acbbd60&hm=5c2a1de6daf55433753abfdf5f65a38154cf9058a3d25afe12ff3733f878540b&">
+  <img width="2000" height="960" alt="image" src="https://github.com/user-attachments/assets/9d63a7ff-5001-48f6-97c0-cdaed4513881">
 
   (Colt <Matching PFPs with Medic/Red>)
   <img src="https://media.discordapp.net/attachments/1465255543559159975/1558340321438343178/Untitled61_20260712100331.png?ex=6acd0f45&is=6acbbdc5&hm=fa5d3b4aa11d3ab95f7620a94f427287d0da1ab52e8cb19a444b770cac736a98&=&format=webp&quality=lossless&width=1280&height=1238">
