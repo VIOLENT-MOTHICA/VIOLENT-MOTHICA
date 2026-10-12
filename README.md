@@ -9,7 +9,7 @@
  
 𓆩⟡𓆪 If you are wondering about the bodies age, it is 28. Though our alters vary in ages. 
 
-✧˖°࿐ Before you ask, yes, we are diagnosed. No I will not listen to you saying "Oh you're just faking for-" Stop. Who ever fakes an Illness or Disability can kindly go fuck themselves. This isn't "cute" or "quirky." **And YES. You can have alters from Media. I've had this issue stressed from being explained. Don't like it? Well, the block button looks nice, doesn't it!**
+✧˖°࿐**YES. You can have alters from Media. I've had this issue stressed from being explained. Don't like it? Well, the block button looks nice, doesn't it! I will not have anyone invalidating my trauma because they are "uncomfortable." Act like an actual adult.**
 
 
 𓆩⟡𓆪 You can reach me basically on anything! (Pier is taking as Host for now, so give him time to reply.)
