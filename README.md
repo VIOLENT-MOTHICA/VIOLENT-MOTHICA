@@ -69,6 +69,10 @@ More Information below About Me/Us
   (Colt <Matching PFPs with Medic/Red>)
   <img src="https://media.discordapp.net/attachments/1465255543559159975/1558340321438343178/Untitled61_20260712100331.png?ex=6acd0f45&is=6acbbdc5&hm=fa5d3b4aa11d3ab95f7620a94f427287d0da1ab52e8cb19a444b770cac736a98&=&format=webp&quality=lossless&width=1280&height=1238">
 
+(Spooky/The Pookiest of Pookies)
+<img width="795" height="859" alt="image" src="https://github.com/user-attachments/assets/594b172a-c708-492f-b78a-db018a0193dd" />
+
+
   (Rest to Come!)
   <img src="https://64.media.tumblr.com/015a0f663b548f57f5aab6c2fdd7f47b/c5c0f7512d6fcde4-57/s1280x1920/c9e0b615f38878359a43cb67927a516b87ab18e6.gifv">
 <img src="https://64.media.tumblr.com/5979f4bf79d03feb3d897c0172b9eddf/5b5768b53aad21c8-c3/s1280x1920/ca63cc5960a17fdb4c5e375e5039d8f7c944944b.pnj">
