@@ -54,20 +54,23 @@ More Information below About Me/Us
 
 
 (Sika)
- <img src="https://media.discordapp.net/attachments/1465255543559159975/1558326594194640936/tea.png?ex=6acdab3c&is=6acc59bc&hm=6e6f7d8a39089b29a9b3560d1a5358a7f63811d1541d78aa067d2bcc9373468c&=&format=webp&quality=lossless">
+
+ <img src="https://media.discordapp.net/attachments/1465255543559159975/1558326594194640936/tea.png?ex=6ad399fc&is=6ad2487c&hm=c56bc02034538efb8dbe95df6874f0dcfdcef1d4838bdca78e3ade6eb4bf63d7&=&format=webp&quality=lossless">
 
  (Medic/Red)
-  <img src="https://media.discordapp.net/attachments/1465255543559159975/1558327116708454420/Untitled61_20260712100331.png?ex=6acdabb8&is=6acc5a38&hm=4af473c9e5a40ebb409d03f3c7de4a530c034d6df4c05ef3418cd3862626ee5f&=&format">
+  
+  <img src="https://media.discordapp.net/attachments/1465255543559159975/1558327116708454420/Untitled61_20260712100331.png?ex=6ad39a78&is=6ad248f8&hm=2150d5fdb705b240791ba068333be6f98409f2b0689142ca7df128b579541f3f&=&format=webp&quality=lossless&width=512&height=495">
 
   (Solas)
   
-  <img src="https://media.discordapp.net/attachments/1465255543559159975/1558341826438500352/Solas_comm.png?ex=6acd10ac&is=6acbbf2c&hm=17b7826e17a7f82f0d6ee3838b8380df69d969b5b22870a0404056c9032f7082&=&format=webp&quality=lossless&width=808&height=1024">
+ <img src="https://media.discordapp.net/attachments/1465255543559159975/1558341826438500352/Solas_comm.png?ex=6ad3a82c&is=6ad256ac&hm=16c48b5175f985da73cd47eaebe1fc16ee9fb06f824dcca46527d2b8532585f2&=&format=webp&quality=lossless&width=404&height=512">
 
   (Plaugie)
   <img width="2000" height="960" alt="image" src="https://github.com/user-attachments/assets/9d63a7ff-5001-48f6-97c0-cdaed4513881">
 
   (Colt <Matching PFPs with Medic/Red>)
-  <img src="https://media.discordapp.net/attachments/1465255543559159975/1558340321438343178/Untitled61_20260712100331.png?ex=6acd0f45&is=6acbbdc5&hm=fa5d3b4aa11d3ab95f7620a94f427287d0da1ab52e8cb19a444b770cac736a98&=&format=webp&quality=lossless&width=1280&height=1238">
+
+  <img src="https://media.discordapp.net/attachments/1465255543559159975/1558327116708454420/Untitled61_20260712100331.png?ex=6ad39a78&is=6ad248f8&hm=2150d5fdb705b240791ba068333be6f98409f2b0689142ca7df128b579541f3f&=&format=webp&quality=lossless&width=1280&height=1238">
 
 (Spooky/The Pookiest of Pookies)
 <img width="795" height="859" alt="image" src="https://github.com/user-attachments/assets/594b172a-c708-492f-b78a-db018a0193dd" />
