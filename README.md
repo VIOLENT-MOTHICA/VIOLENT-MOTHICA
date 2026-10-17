@@ -47,7 +47,7 @@ More Information below About Me/Us
 
 ✧˖°࿐⋘This is dedicated to my friends. For all of you who have helped me through the worst times, I can not thank you enough. Seriously. You helped me finally be happy, all of you. I seriously mean this. Without all of you, I would not be here anymore. If I could take all the pain you're going through, for my own selfish reasons, if it meant you'd be happy and living happier? I would absolutely do that.⋙✧˖°࿐
 
-𓆩⟡𓆪 Sen, Mateo, Spooky, Ash, Cafu, Nept, Cass, Sika, Red/Medic, Solas, Colt, Plaugie, Varu, Rory✧˖*°࿐
+𓆩⟡𓆪 Sen, Mateo, Spooky, Ash, Cafu, Nept, Cass, Sika, Red/Medic, Solas, Colt, Plaugie, Varu, Rory, Ram the Ram, Oceanman, (more to be added)✧˖*°࿐
 
 <img src="https://64.media.tumblr.com/f4e8f791b3bb58e3c8ff069bace8349a/a4c71817eda70ea5-e7/s1280x1920/9c0a095cbefd9fbf6574c0eca1eec4bd53e9d258.gifv">
 
