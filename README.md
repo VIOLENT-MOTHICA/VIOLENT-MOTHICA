@@ -51,31 +51,5 @@ More Information below About Me/Us
 
 <img src="https://64.media.tumblr.com/f4e8f791b3bb58e3c8ff069bace8349a/a4c71817eda70ea5-e7/s1280x1920/9c0a095cbefd9fbf6574c0eca1eec4bd53e9d258.gifv">
 
-
-
-(Sika)
-
- <img src="https://media.discordapp.net/attachments/1465255543559159975/1558326594194640936/tea.png?ex=6ad399fc&is=6ad2487c&hm=c56bc02034538efb8dbe95df6874f0dcfdcef1d4838bdca78e3ade6eb4bf63d7&=&format=webp&quality=lossless">
-
- (Medic/Red)
-  
-  <img src="https://media.discordapp.net/attachments/1465255543559159975/1558327116708454420/Untitled61_20260712100331.png?ex=6ad39a78&is=6ad248f8&hm=2150d5fdb705b240791ba068333be6f98409f2b0689142ca7df128b579541f3f&=&format=webp&quality=lossless&width=512&height=495">
-
-  (Solas)
-  
- <img src="https://media.discordapp.net/attachments/1465255543559159975/1558341826438500352/Solas_comm.png?ex=6ad3a82c&is=6ad256ac&hm=16c48b5175f985da73cd47eaebe1fc16ee9fb06f824dcca46527d2b8532585f2&=&format=webp&quality=lossless&width=404&height=512">
-
-  (Plaugie)
-  <img width="2000" height="960" alt="image" src="https://github.com/user-attachments/assets/9d63a7ff-5001-48f6-97c0-cdaed4513881">
-
-  (Colt <Matching PFPs with Medic/Red>)
-
-  <img src="https://media.discordapp.net/attachments/1465255543559159975/1558327116708454420/Untitled61_20260712100331.png?ex=6ad39a78&is=6ad248f8&hm=2150d5fdb705b240791ba068333be6f98409f2b0689142ca7df128b579541f3f&=&format=webp&quality=lossless&width=1280&height=1238">
-
-(Spooky/The Pookiest of Pookies)
-<img width="795" height="859" alt="image" src="https://github.com/user-attachments/assets/594b172a-c708-492f-b78a-db018a0193dd" />
-
-
-  (Rest to Come!)
   <img src="https://64.media.tumblr.com/015a0f663b548f57f5aab6c2fdd7f47b/c5c0f7512d6fcde4-57/s1280x1920/c9e0b615f38878359a43cb67927a516b87ab18e6.gifv">
 <img src="https://64.media.tumblr.com/5979f4bf79d03feb3d897c0172b9eddf/5b5768b53aad21c8-c3/s1280x1920/ca63cc5960a17fdb4c5e375e5039d8f7c944944b.pnj">
