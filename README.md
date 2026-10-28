@@ -44,12 +44,12 @@ More Information below About Me/Us
 𓆩⟡𓆪  " It's just a game " excuses will get you hidden. Simply because it is an 18+ server, does not give you the right to be absolutely rude. Leave if you are like that. 𓆩⟡𓆪 ✧˖°࿐
 
 <img src="https://64.media.tumblr.com/5979f4bf79d03feb3d897c0172b9eddf/5b5768b53aad21c8-c3/s1280x1920/ca63cc5960a17fdb4c5e375e5039d8f7c944944b.pnj">
+<img src="https://64.media.tumblr.com/015a0f663b548f57f5aab6c2fdd7f47b/c5c0f7512d6fcde4-57/s1280x1920/c9e0b615f38878359a43cb67927a516b87ab18e6.gifv">
 
 ✧˖°࿐⋘This is dedicated to my friends. For all of you who have helped me through the worst times, I can not thank you enough. Seriously. You helped me finally be happy, all of you. I seriously mean this. Without all of you, I would not be here anymore. If I could take all the pain you're going through, for my own selfish reasons, if it meant you'd be happy and living happier? I would absolutely do that.⋙✧˖°࿐
 
-𓆩⟡𓆪 Sen, Mateo, Spooky, Ash, Cafu, Nept, Cass, Sika, Red/Medic, Solas, Colt, Plaugie, Varu, Rory, Ram the Ram, Oceanman, (more to be added)✧˖*°࿐
 
-<img src="https://64.media.tumblr.com/f4e8f791b3bb58e3c8ff069bace8349a/a4c71817eda70ea5-e7/s1280x1920/9c0a095cbefd9fbf6574c0eca1eec4bd53e9d258.gifv">
+𓆩⟡𓆪 Sen, Mateo, Spooky, Ash, Cafu, Nept, Cass, Sika, Red/Medic, Solas, Colt, Plaugie, Varu, Rory, Ram the Ram, Oceanman, (more to be added)✧˖*°࿐
 
   <img src="https://64.media.tumblr.com/015a0f663b548f57f5aab6c2fdd7f47b/c5c0f7512d6fcde4-57/s1280x1920/c9e0b615f38878359a43cb67927a516b87ab18e6.gifv">
 <img src="https://64.media.tumblr.com/5979f4bf79d03feb3d897c0172b9eddf/5b5768b53aad21c8-c3/s1280x1920/ca63cc5960a17fdb4c5e375e5039d8f7c944944b.pnj">
